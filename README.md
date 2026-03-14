@@ -1,5 +1,5 @@
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/%CB%8B%CB%8F%20%E0%BC%BB%20%F0%9D%9C%97%F0%9D%9C%9A%20%E0%BC%BA%20%CB%8E%CB%8A-.jpg" width="150" />
-<p align="center"> "ʸᵒᵘ ᵐᵘˢᵗ ᵇᵉ ᵉˣʰᵃᵘˢᵗᵉᵈ. ˡᵉᵗˢ ᵗᵃᵏᵉ ᵃ ᵇʳᵉᵃᵏ, ʰᵘʰ ᵇᵘᵈᵈʸ?" </a><p align="center"> ૮ ྀིᴗ͈ . ᴗ͈ ྀིა
+<p align="center"> "ʸᵒᵘ ᵐᵘˢᵗ ᵇᵉ ᵉˣʰᵃᵘˢᵗᵉᵈ. ˡᵉᵗˢ ᵗᵃᵏᵉ ᵃ ᵇʳᵉᵃᵏ, ʰᵘʰ ᵇᵘᵈᵈʸ?" </a><p align="center"> ꒷꒦✧˖°🫀⋆｡𖦹꒷꒦
 
 
 <!--
