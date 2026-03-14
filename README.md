@@ -1,6 +1,6 @@
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Screenshot_2026-03-14_100001-removebg-preview.webp" width="150" />
 <p align="center"> "ʸᵒᵘ ᵐᵘˢᵗ ᵇᵉ ᵉˣʰᵃᵘˢᵗᵉᵈ. ˡᵉᵗˢ ᵗᵃᵏᵉ ᵃ ᵇʳᵉᵃᵏ, ʰᵘʰ ᵇᵘᵈᵈʸ?" </a><p align="center"> ꒷꒦✧˖°🫀⋆｡𖦹꒷꒦
-
+𐂯  <a href="https://github.com/Welcome2Paradise">my miles</a>  𐂯
 
 <!--
 **Maddsszz/maddsszz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
