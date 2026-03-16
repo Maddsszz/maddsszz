@@ -1,10 +1,5 @@
 <p align="center">─── ⋆⋅ ♰ ⋅⋆ ─── 
 <p align="center">𐂯  <a href="https://github.com/Welcome2Paradise">my miles</a>  𐂯
-  <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ukqd7jdhazegocbfifls5mmvdu&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=5e995c">
-  </a>
-</p>
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Screenshot_2026-03-14_100001-removebg-preview.webp" width="150" />
 <p align="center"> "ʸᵒᵘ ᵐᵘˢᵗ ᵇᵉ ᵉˣʰᵃᵘˢᵗᵉᵈ. ˡᵉᵗˢ ᵗᵃᵏᵉ ᵃ ᵇʳᵉᵃᵏ, ʰᵘʰ ᵇᵘᵈᵈʸ?" </a><p align="center"> ꒷꒦✧˖°🫀⋆｡𖦹꒷꒦
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/download.gif" width="320" />
