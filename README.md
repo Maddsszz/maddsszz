@@ -2,8 +2,9 @@
 <p align="center">𐂯  <a href="https://github.com/Welcome2Paradise">my miles</a>  𐂯
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled62_20260323192907.png" width="320" />
 <p align="center"> "ʸᵒᵘ ᵐᵘˢᵗ ᵇᵉ ᵉˣʰᵃᵘˢᵗᵉᵈ. ˡᵉᵗˢ ᵗᵃᵏᵉ ᵃ ᵇʳᵉᵃᵏ, ʰᵘʰ ᵇᵘᵈᵈʸ?" </a><p align="center"> ꒷꒦✧˖°🫀⋆｡𖦹꒷꒦
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/download.gif" width="320" />
-<p align="center"> ˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ukqd7jdhazegocbfifls5mmvdu&cover_image=true&theme=novatorem&show_offline=false&background_color=ff0000&interchange=false&profanity=false&bar_color=ff0000&bar_color_cover=false"width="320">
 <!--
 **Maddsszz/maddsszz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
