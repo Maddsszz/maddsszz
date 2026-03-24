@@ -1,5 +1,5 @@
 
-<p align="center"> <a href="https://maddywaddyy.atabook.org/">αƚα!!</a> 
+<p align="center"> <a href="https://maddywaddyy.atabook.org/">αƚα!!</a>  <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled66_20260323212557.png" width="30" />
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled62_20260323192907.png" width="320" />
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
