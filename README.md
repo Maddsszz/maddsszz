@@ -1,5 +1,5 @@
-
-<p align="center"> <a href="https://maddywaddyy.atabook.org/">𝙖𝙩𝙖 ,,!</a>  <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled80_20260404211915.png" width="30" /> </a><a href="https://github.com/KaliIsLost">𝙈𝙮 𝙗𝙚𝙡𝙖 . 𖹭
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled80_20260404211915.png" width="30" />
+<p align="center"> <a href="https://maddywaddyy.atabook.org/">𝙖𝙩𝙖 ,,!</a>   </a><a href="https://github.com/KaliIsLost">𝙈𝙮 𝙗𝙚𝙡𝙖 . 𖹭
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled79_20260404210520.png" width="320" />
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
